@@ -1,6 +1,7 @@
 # L’outils du renouveau
 
 **_"Participez à un mouvement de changement positif avec un outil rendant le pouvoir économique et social au peuple : Monero"_**
+
 8 Juin, 2020
 
 Nous sommes en l’année 2020, et nous voyions se développer une crise multifacette. Nous avons une pandémie globale, la réapparition de tensions raciales et économiques, d’extrêmes divisions géopolitiques, et des abus de pouvoir par les gouvernements et les banques centrales dans le monde. Nous avons, l’histoire nous le montre, les ingrédients pour un changement profond. Si vous supportez ou êtes parmi ceux qui sont opprimés pour raisons raciales, religieuses, politiques ou économiques, je vous invite à participer à un mouvement pour un changement positif avec un outil rendant le pouvoir économique et social au peuple : Monero.
